@@ -1,2 +1,0 @@
-# JINJU
-JINJU infomation
